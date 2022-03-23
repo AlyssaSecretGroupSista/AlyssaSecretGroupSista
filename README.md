@@ -1,10 +1,9 @@
-- 👋 Hi, I’m Alyssa
-- 👀 I’m interested in rapping
-- 🌱 I’m currently learning how to rap better
+- 👋 livvyxxpeachyy
+- 👀 I’m interested in dancing
+- 🌱 I’m currently learning how to improve my Chinese
 - 💞️ I’m looking to collaborate on studies
-- 📫 How to reach me ----------
-
+- 📫 How to reach me eh eh eh eh 
+- love yourself
 <!---
-AlyssaSecretGroupSista/AlyssaSecretGroupSista is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+bless you
 --->
